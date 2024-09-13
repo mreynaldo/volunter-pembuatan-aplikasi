@@ -7,3 +7,6 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Informatic, [informatic.or.id](https://informatic.or.id).
+* Muhammad Reynaldo Aulia Rachman, [Linkedin](www.linkedin.com/in/muhammadreynaldoauliarachman).
+
+
